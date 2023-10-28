@@ -1,0 +1,1 @@
+# APPLIED-AI-assignment-no.2
